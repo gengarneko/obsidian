@@ -1,0 +1,4 @@
+- [为什么总是在防御](https://www.notion.so/c5d8c70be5c648c39ab71db990ebb7dc?pvs=21)
+- 被讨厌的勇气
+- 思考快与慢
+- 非暴力沟通
